@@ -1,2 +1,2 @@
-mayjor in noliner dynamicas and complex networks
+mayjor in noliner dynamicas and complex networks,
 china，snnu
